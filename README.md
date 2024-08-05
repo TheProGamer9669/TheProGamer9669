@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @TheProGamer9669
+- 👀 I’m interested in Python/HTML coding
+- 🌱 I’m currently learning Python/HTML
+- 📫 How to reach me Discord:TheProGamer 1216631189880701039
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I Like Cheese
